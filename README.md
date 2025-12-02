@@ -1,0 +1,48 @@
+# (sic)boy – Ghost of You(Prod.KM)
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:10.79] 鎖の中もがいて thinking it
+[00:14.07] 生きるためにこもる秘密基地
+[00:16.80] いつのまにか love は believe に
+[00:19.55] Makin' new cult and just follow me
+[00:22.66] ジオラマ仮想空間の Tokyo
+[00:25.21] 溺れかけても問う how to walk
+[00:28.46] 自分勝手な世界を創造
+[00:31.09] 寝ぼけ眼 にらむ憂鬱を
+[00:34.04] Hey monsters! Hey creatures!
+[00:36.35] And mommy and daddy and teachers!
+[00:39.30] Hey 信者 my 信者
+[00:42.05] Yeah, believers never die, just let go
+[00:45.11] Remember that morning
+[00:46.22] Take me back to real!
+[00:47.75] Ghost of you are always next to me!
+[00:50.36] Dirty glory いらない story
+[00:53.31] 尖ったナイフを突き刺すように
+[00:56.12] How am I breathing この街 freezing
+[00:59.16] ため息と狂気で満ちて病気
+[01:02.05] 誰かの心理 溢れて busy
+[01:04.86] 説教したがりの馬鹿が多い 多い
+[01:19.22] この声と存在は no limit
+[01:23.04] 生きるために抜ける秘密基地
+[01:26.00] 時は流れ love は believe に
+[01:28.61] Makin' new cult and just follow me
+[01:31.70] 細切れ曖昧な記憶 Tokyo
+[01:34.51] 崩れかけても問う how to walk
+[01:37.45] 気分次第で毎日暴走
+[01:40.27] 記憶なし上書きの emotion
+[01:43.00] Hey monsters! Hey creatures!
+[01:45.48] And mommy and daddy and teachers!
+[01:48.63] Hey 信者 my 信者
+[01:51.44] Yeah, believer's never die, just let go
+[01:54.06] Remember that morning
+[01:55.04] Take me back to real!
+[01:56.67] Ghost of you are always next to me!
+[01:59.34] Dirty glory いらない story
+[02:02.15] 尖ったナイフを突き刺すように
+[02:05.36] How am I breathing? この街 freezing
+[02:07.97] ため息と狂気で満ちて病気
+[02:10.95] 誰かの心理 溢れて busy
+[02:13.75] 説教したがりの馬鹿が多い 多い
+```
